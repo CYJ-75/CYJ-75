@@ -5,4 +5,4 @@
 👩‍🏫朝揚/程優補習班 工讀生
 
 ### 信箱
-📧940705jenny@gmail.com\
+📧940705jenny@gmail.com
